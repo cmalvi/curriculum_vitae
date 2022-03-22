@@ -66,7 +66,7 @@ Determinato nel voler raggiungere un obiettivo nonostante le difficoltà, invest
 ## Istruzione
 
 ### Laurea Triennale in Ingegneria Informatica
-Università degli Studi di Genova 2018 - Febbraio 2022
+Università degli Studi di Genova 2018 - Luglio 2022
 
 
 ### Diploma 
